@@ -65,7 +65,7 @@
 ## 💬 Connect With Me
 
 - 📧 Email: gchandrashekar@hawk.iit.edu
-- 👤 LinkedIn: [Coming Soon or add your link!]
+- 👤 LinkedIn: [www.linkedin.com/in/ganeshprasad1898]
 
 ---
 
